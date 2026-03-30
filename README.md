@@ -1,1 +1,1 @@
-# St-rn-Kraft-Media
+# Ste-rn-Kraft-Media
