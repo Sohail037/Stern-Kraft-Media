@@ -1,1 +1,1 @@
-# Ste-rn-Kraft-Media
+# Stern-Kraft-Media
